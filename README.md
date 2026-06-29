@@ -32,8 +32,8 @@
 
 ## 📞 МОИ КОНТАКТЫ | MY CONTACTS
 
+- **Для вопросов писать сюда: [https://t.me/guysuccess](https://t.me/guysuccess)**
 - **For any questions write here: [https://t.me/guysuccess](https://t.me/guysuccess)**
-
 
 
 ### ⚠️ ЮРИДИЧЕСКАЯ ИНФОРМАЦИЯ / LEGAL INFORMATION / 法律信息
