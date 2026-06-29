@@ -35,6 +35,7 @@
 - **For any questions write here: [https://t.me/guysuccess](https://t.me/guysuccess)**
 
 
+
 ### ⚠️ ЮРИДИЧЕСКАЯ ИНФОРМАЦИЯ / LEGAL INFORMATION / 法律信息
 
 - **СКРИПТ РАЗРАБОТАН ИСКЛЮЧИТЕЛЬНО В ОБРАЗОВАТЕЛЬНЫХ ЦЕЛЯХ**
